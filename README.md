@@ -1,5 +1,5 @@
 ### Hi there 👋
-- 🔭 I’m currently working on expanding my skillset.
+- 🔭 I’m working on expanding my skillset.
 - 🌱 I’m currently learning how to use GitHub.
 - 😄 Pronouns: she/her
 
